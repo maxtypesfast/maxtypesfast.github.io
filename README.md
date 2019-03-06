@@ -1,0 +1,1 @@
+# maxtypesfast.github.io
